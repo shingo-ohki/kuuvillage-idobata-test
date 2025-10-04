@@ -1,0 +1,1 @@
+# kuuvillage-idobata-test
